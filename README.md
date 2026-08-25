@@ -1,4 +1,4 @@
-# Hi there, I'm Nguyễn Mạnh Điềm 👋
+# Xin Chào Mình Là - Nguyễn Mạnh Điềm 👋
 
 ### 🔄 Quá trình hoạt động
 
